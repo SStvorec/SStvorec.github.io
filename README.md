@@ -1,2 +1,1 @@
-# Essential Phone Collentions
-————This site is building!————
+# This site is under-construction ! Plz wait the dev ,which is going on~~
